@@ -1,1 +1,0 @@
-# vedantk.card.co
